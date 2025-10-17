@@ -9,7 +9,7 @@ By targeting the same biological communication loop that connects the digestive 
 
 The product’s launch reflects a broader movement within the wellness industry toward **natural solutions that mimic the body’s existing metabolic cues.** As interest in GLP-1-based appetite therapies continues to rise, researchers and formulators are exploring nutritional compounds that can activate similar mechanisms through diet and supplementation.
 
-Each batch of [Hunger Switch™](https://copilot.microsoft.com/shares/RKuDYZw42998JiuTjQByU) is manufactured in the United States under current Good Manufacturing Practices (cGMP) and undergoes independent laboratory verification for purity and potency. The gummies are vegan-friendly and free from artificial dyes or preservatives.
+Each batch of Hunger Switch™ is manufactured in the United States under current Good Manufacturing Practices (cGMP) and undergoes independent laboratory verification for purity and potency. The gummies are vegan-friendly and free from artificial dyes or preservatives.
 
 Industry observers note that the growing focus on **gut–brain science** is shaping the next generation of weight-management and wellness products-offering consumers options that emphasize balance, sustainability, and accessible daily use.
 
